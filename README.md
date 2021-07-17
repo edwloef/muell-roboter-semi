@@ -8,4 +8,4 @@ Edwin: Bau des Roboters, Kamerahalterung
 
 ***
 
-__Datensatz: ALLE (Plastik, Papier bis Ende Oktober fertig)__
+__Datensatz: ALLE (Plastik, Papier bis Ende August fertig)__
